@@ -32,7 +32,6 @@ background shapes + credit - #ececec
 
 <div align="center" style="line-height: 20px; border-style:none; width:300px; height:100px: text-align:left; float:left; padding: 2px;">
 
-
 <i style="font-family:times new roman; font-size:10px; color:#cccccc">
 ⋆⁺₊⋆ ━ " idk this is a wip..."
 </i>
@@ -64,7 +63,7 @@ background shapes + credit - #ececec
 <div class= "flex-container" align="center" style=" word-wrap: break-word; line-height: 20px; border-style:none; width:300px; height:100px: text-align:left; float:left; padding: 12px;">
 
 
-<b><img style="margin-left: 0px; margin-right:10px; max-width:120px; max-height:120px; border-radius:25px; border-style:dotted; border-color:#474747" align="left" src="https://i.postimg.cc/1znpT5LM/image-2025-06-23-104107123.png"></b>
+<b><img style="margin-left: 0px; margin-right:10px; max-width:120px; max-height:120px; border-radius:25px; border-style:dotted; border-color:#474747" align="left" src="https://i.postimg.cc/mgzFPd4V/image-2025-06-27-121809446.png"></b>
 
 
 <b class="container p-0 text-left" style="width:300px;">

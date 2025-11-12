@@ -63,7 +63,7 @@ background shapes + credit - #ececec
 <div class= "flex-container" align="center" style=" word-wrap: break-word; line-height: 20px; border-style:none; width:300px; height:100px: text-align:left; float:left; padding: 12px;">
 
 
-<b><img style="margin-left: 0px; margin-right:10px; max-width:120px; max-height:120px; border-radius:25px; border-style:dotted; border-color:#474747" align="left" src="https://i.postimg.cc/mgzFPd4V/image-2025-06-27-121809446.png"></b>
+<b><img style="margin-left: 0px; margin-right:10px; max-width:120px; max-height:120px; border-radius:25px; border-style:dotted; border-color:#474747" align="left" src="https://64.media.tumblr.com/cf2126e1938b5c7494f57c87a1b38603/ffdab70ce6f1468e-3f/s1280x1920/38dc8b530166f1b21e35311777f406db2c77650a.gifv"></b>
 
 
 <b class="container p-0 text-left" style="width:300px;">

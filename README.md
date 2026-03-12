@@ -1,11 +1,11 @@
 <p align="center"> <img width="800" height="511" alt="image" src="https://i.postimg.cc/65xf4Th5/image-2026-03-12-082756122.png" />
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<p align="center">![](https://komarev.com/ghpvc/?username=coypaw&color=8f332b&style=plastic&label=pizzas+🍕)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<p align="center">![](https://komarev.com/ghpvc/?username=coypaw&color=8f332b&style=plastic&label=admins+🖥️)
 
 
 
 <p align="center">
-  𓏏𓏏　⠀　⠀　⠀　⠀【 🍕 】　⠀　⠀　⠀　⠀　⠀𓏏𓏏
+  𓏏𓏏　⠀　⠀　⠀　⠀【 📡 】　⠀　⠀　⠀　⠀　⠀𓏏𓏏
 </p>
 
 <p align="center">
@@ -17,5 +17,5 @@
 </p>
 
 <p align="center">
-  𓏏𓏏　⠀　⠀　⠀　⠀【 🍕 】　⠀　⠀　⠀　⠀　⠀𓏏𓏏
+  𓏏𓏏　⠀　⠀　⠀　⠀【 📡 】　⠀　⠀　⠀　⠀　⠀𓏏𓏏
 </p>

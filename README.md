@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href=https://ellictbuilder.straw.page/>strawpage</a>⠀ ›⠀ <a href=https://coypaw.atabook.org/>atabook</a>⠀ ›⠀ <a href=https://rentry.co/worsethings>rentry</a>
+  <a href=https://coypaw.straw.page/>strawpage</a>⠀ ›⠀ <a href=https://coypaw.atabook.org/>atabook</a>⠀ ›⠀ <a href=https://rentry.co/worsethings>rentry</a>
 </p>
 
 <p align="center">

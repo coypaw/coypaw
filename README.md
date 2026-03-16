@@ -1,22 +1,34 @@
 <p align="center"> <img width="800" height="511" alt="image" src="https://i.postimg.cc/65xf4Th5/image-2026-03-12-082756122.png" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=45&pause=1000&color=B1D8D8&center=true&multiline=true&width=750&height=60&lines=At+some+point+i+stopped+seeing+you+as+human)](https://git.io/typing-svg)
+   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=45&pause=1000&color=B1D8D8&center=true&multiline=true&width=750&height=60&lines=At+some+point+i+stopped+seeing+you+as+human)](https://git.io/typing-svg)
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<p align="center">![](https://komarev.com/ghpvc/?username=coypaw&color=adc4db&style=plastic&label=admins+🖥️)
 
 <p align="center">
-  𓏏𓏏　⠀　⠀　⠀　⠀【 📡 】　⠀　⠀　⠀　⠀　⠀𓏏𓏏
+  ⊹₊˚‧︵‿₊　⠀　⠀　⠀　⠀ 📡 　⠀　⠀　⠀　⠀　⠀₊‿︵‧˚₊⊹
 </p>
+
 
 <p align="center">
   <a href=https://coypaw.straw.page/>strawpage</a>⠀ ›⠀ <a href=https://coypaw.atabook.org/>atabook</a>⠀ ›⠀ <a href=https://rentry.co/worsethings>rentry</a>
 </p>
 
 <p align="center">
-  w2i  mostly⠀⠀c+h heavily enc⠀⠀ships int  !!
+  ✚ ◞     ═╪ ⠀
+
+  </p>
+
+<p align="center">
+  ₊  ⌓⌓ 　w2i  mostly  　　𓍢
+　    c+h  enc⠀⠀⠀🧿       
+</p>
+  <p align="center">
+　　　　𝜗𝒞   　⁺　ships  int　❜
+　　　　 　｡　rblx  🦢  mc  𓎢𓎟𓎡 
+
 </p>
 
 <p align="center">
-  𓏏𓏏　⠀　⠀　⠀　⠀【 📡 】　⠀　⠀　⠀　⠀　⠀𓏏𓏏
+  ⊹₊˚‧︵‿₊　⠀　⠀　⠀　⠀ 📡 　⠀　⠀　⠀　⠀　⠀₊‿︵‧˚₊⊹
 
   <p align="center"> <img width="144" height="144" alt="image" src="https://i.postimg.cc/2ScWG5nY/image-2026-03-12-082918544.png" />
 </p>

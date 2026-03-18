@@ -28,14 +28,12 @@
   </p>
 
 <p align="center">
-  ₊  ⌓⌓ 　w2i  mostly  　　𓍢
-　    c+h  enc⠀⠀⠀🧿       
+  ₊  ⌓⌓ 　call  us  $${\color{#b0d8d8}kaiden}$$  or  carni  　　𓍢
+　    $${\color{#b0d8d8}5teen}$$⠀⠀⠀🧿       
 </p>
   <p align="center">
-　　　　𝜗𝒞   　⁺　ships  int　❜
-　　　　 　｡　rblx  🦢  mc  𓎢𓎟𓎡 
-
-</p>
+　　　　𝜗𝒞   　artist   $${\color{#b0d8d8}system}$$
+    </p>
 
 <p align="center">
   ⊹₊˚‧︵‿₊　⠀　⠀　⠀　⠀ 📡 　⠀　⠀　⠀　⠀　⠀₊‿︵‧˚₊⊹

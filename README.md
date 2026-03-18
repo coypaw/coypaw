@@ -7,6 +7,16 @@
   ⊹₊˚‧︵‿₊　⠀　⠀　⠀　⠀ 📡 　⠀　⠀　⠀　⠀　⠀₊‿︵‧˚₊⊹
 </p>
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31h23vphcbe55gfkfartemam57qe&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&mode=dark&bar_color=9dabd8&bar_color_cover=true">
+  </a>
+</p>
+
+<p align="center">
+  ⊹₊˚‧︵‿₊　⠀　⠀　⠀　⠀ 📡 　⠀　⠀　⠀　⠀　⠀₊‿︵‧˚₊⊹
+</p>
+
 
 <p align="center">
   <a href=https://coypaw.straw.page/>strawpage</a>⠀ ›⠀ <a href=https://coypaw.atabook.org/>atabook</a>⠀ ›⠀ <a href=https://rentry.co/worsethings>rentry</a>

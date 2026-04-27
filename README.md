@@ -1,10 +1,13 @@
 <p align="center"> <img width="800" height="300" alt="image" src="https://i.postimg.cc/65xf4Th5/image-2026-03-12-082756122.png" />
 
    [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=45&pause=1000&color=B1D8D8&center=true&multiline=true&width=750&height=60&lines=At+some+point+i+stopped+seeing+you+as+human)](https://git.io/typing-svg)
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<p align="center">![](https://komarev.com/ghpvc/?username=coypaw&color=adc4db&style=plastic&label=admins+🖥️)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<p align="center">![](https://komarev.com/ghpvc/?username=coypaw&color=adc4db&style=plastic&label=admins+🖥️)
 
 <p align="center">
-  ⊹₊˚‧︵‿₊　⠀　⠀　⠀　⠀ 📡 　⠀　⠀　⠀　⠀　⠀₊‿︵‧˚₊⊹
+
+
+
 </p>
 
 <p align="center">
@@ -14,8 +17,22 @@
 </p>
 
 <p align="center">
-  ⊹₊˚‧︵‿₊　⠀　⠀　⠀　⠀ 📡 　⠀　⠀　⠀　⠀　⠀₊‿︵‧˚₊⊹
+  　　　
+
+  </p>
+
+<p>
+  ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#ebdfe1}{"lyr}$ $\color{#ebdfe1}{lyr}$ $\color{#ebdfe1}{lyr}$ $\color{#ebdfe1}{lyr}$ $\color{#ebdfe1}{lyr}$ $\color{#b0d8d8}{lyr. "}$ 
 </p>
+
+<p align="center">
+
+</p>
+<p align="center">
+  　　　
+
+  </p>
+
 
 
 <p align="center">
@@ -23,9 +40,10 @@
 </p>
 
 <p align="center">
-  ✚ ◞     ═╪ ⠀
+  　　　
 
   </p>
+
 
 <p align="center">
   ₊  ⌓⌓ 　call  us  $${\color{#b0d8d8}kaiden}$$  or  carni  　　𓍢
@@ -36,7 +54,6 @@
     </p>
 
 <p align="center">
-  ⊹₊˚‧︵‿₊　⠀　⠀　⠀　⠀ 📡 　⠀　⠀　⠀　⠀　⠀₊‿︵‧˚₊⊹
 
   <p align="center"> <img width="144" height="144" alt="image" src="https://i.postimg.cc/2ScWG5nY/image-2026-03-12-082918544.png" />
 </p>

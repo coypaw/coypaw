@@ -21,10 +21,6 @@
 
   </p>
 
-<p>
-  ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#ebdfe1}{"lyr}$ $\color{#ebdfe1}{lyr}$ $\color{#ebdfe1}{lyr}$ $\color{#ebdfe1}{lyr}$ $\color{#ebdfe1}{lyr}$ $\color{#b0d8d8}{lyr. "}$ 
-</p>
-
 <p align="center">
 
 </p>
@@ -46,11 +42,11 @@
 
 
 <p align="center">
-  ₊  ⌓⌓ 　call  us  $${\color{#9f8085}kaiden}$$  or  carni  　　𓍢
-　    $${\color{#9f8085}5teen}$$⠀⠀⠀🐦‍⬛       
+  ₊  ⌓⌓ 　call  us  $${\color{#9b1d1d}kaiden}$$  or  carni  　　𓍢
+　    $${\color{#9b1d1d}5teen}$$⠀⠀⠀🐦‍⬛       
 </p>
   <p align="center">
-　　　　𝜗𝒞   　artist   $${\color{#9f8085}system}$$
+　　　　𝜗𝒞   　artist   $${\color{#9b1d1d}system}$$
     </p>
 
 <p align="center">

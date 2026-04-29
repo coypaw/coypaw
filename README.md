@@ -6,8 +6,6 @@
 
 <p align="center">
 
-![](https://i.postimg.cc/4dNnPfRf/COQUELICOT-(19).png)
-
 </p>
 
 <p align="center">
@@ -46,4 +44,10 @@
 <p align="center">
 
   <p align="center"> <img width="144" height="144" alt="image" src="https://i.postimg.cc/7hycp5b8/COQUELICOT-(14).png" />
+</p>
+
+<p align="center">
+
+![](https://i.postimg.cc/4dNnPfRf/COQUELICOT-(19).png)
+ 
 </p>

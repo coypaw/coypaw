@@ -51,5 +51,5 @@
 
 <p align="center">
 
-  <p align="center"> <img width="144" height="144" alt="image" src="https://i.postimg.cc/2ScWG5nY/image-2026-03-12-082918544.png" />
+  <p align="center"> <img width="144" height="144" alt="image" src="https://i.postimg.cc/7hycp5b8/COQUELICOT-(14).png" />
 </p>

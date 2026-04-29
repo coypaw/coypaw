@@ -36,12 +36,12 @@
 　    $${\color{#9b1d1d}5teen}$$⠀⠀⠀🐦‍⬛       
 </p>
   <p align="center">
-　　　　𝜗𝒞   　artist   $${\color{#9b1d1d}system}$$
+　　𝜗𝒞   　artist   $${\color{#9b1d1d}system}$$
     </p>
 <p>
 ㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image Alt](https://i.postimg.cc/mDd8DgSB/COQUELICOT-(17).png)ㅤ ㅤㅤ ㅤㅤ![Image Alt](https://i.postimg.cc/W39X317j/COQUELICOT-(18).png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image Alt](https://i.postimg.cc/mDd8DgSB/COQUELICOT-(17).png)ㅤ ㅤㅤ ㅤㅤ![Image Alt](https://i.postimg.cc/W39X317j/COQUELICOT-(18).png)
 </p>
 <p align="center">
 

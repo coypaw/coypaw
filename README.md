@@ -48,7 +48,13 @@
   <p align="center">
 　　　　𝜗𝒞   　artist   $${\color{#9b1d1d}system}$$
     </p>
+<p>
+ㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤ
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image Alt](https://i.postimg.cc/mDd8DgSB/COQUELICOT-(17).png)ㅤ ㅤㅤ ㅤㅤ![Image Alt](https://i.postimg.cc/W39X317j/COQUELICOT-(18).png)
+   
+</p>
 <p align="center">
 
   <p align="center"> <img width="144" height="144" alt="image" src="https://i.postimg.cc/7hycp5b8/COQUELICOT-(14).png" />

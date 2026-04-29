@@ -1,4 +1,4 @@
-<p align="center"> <img width="800" height="300" alt="image" src="https://i.postimg.cc/sf8wLQQt/COQUELICOT-(9).png" />
+<p align="center"> <img width="1601" height="900" alt="image" src="https://i.postimg.cc/sf8wLQQt/COQUELICOT-(9).png" />
 
    [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=45&pause=1000&color=B1D8D8&center=true&multiline=true&width=750&height=60&lines=At+some+point+i+stopped+seeing+you+as+human)](https://git.io/typing-svg)
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀

@@ -46,11 +46,11 @@
 
 
 <p align="center">
-  ₊  ⌓⌓ 　call  us  $${\color{#b0d8d8}kaiden}$$  or  carni  　　𓍢
-　    $${\color{#b0d8d8}5teen}$$⠀⠀⠀🧿       
+  ₊  ⌓⌓ 　call  us  $${\color{#9f8085}kaiden}$$  or  carni  　　𓍢
+　    $${\color{#9f8085}5teen}$$⠀⠀⠀🐦‍⬛       
 </p>
   <p align="center">
-　　　　𝜗𝒞   　artist   $${\color{#b0d8d8}system}$$
+　　　　𝜗𝒞   　artist   $${\color{#9f8085}system}$$
     </p>
 
 <p align="center">

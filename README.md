@@ -1,6 +1,6 @@
 <p align="center"> <img width="1605" height="794" alt="image" src="https://i.postimg.cc/bJP9Pk0M/COQUELICOT-(12)-(1).png" />
 
-   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=45&pause=1000&color=9b1d1d&center=true&multiline=true&width=750&height=60&lines=At+some+point+i+stopped+seeing+you+as+human)](https://git.io/typing-svg)
+ ㅤㅤㅤㅤ  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=45&pause=1000&color=9b1d1d&center=true&multiline=true&width=750&height=60&lines=At+some+point+i+stopped+seeing+you+as+human)](https://git.io/typing-svg)
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<p align="center">![](https://komarev.com/ghpvc/?username=coypaw&color=9b1d1d&style=plastic&label=admins+🕹️)
 

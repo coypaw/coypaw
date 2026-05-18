@@ -31,7 +31,7 @@
 
 <p align="center">
   ₊  ⌓⌓ 　call  us  $${\color{#9b1d1d}kaiden}$$  or  carni  　　𓍢
-　    $${\color{#9b1d1d}5teen}$$⠀⠀⠀🐦‍⬛       
+　    $${\color{#9b1d1d}16}$$⠀⠀⠀🐦‍⬛       
 </p>
   <p align="center">
 　　𝜗𝒞   　artist   $${\color{#9b1d1d}system}$$
